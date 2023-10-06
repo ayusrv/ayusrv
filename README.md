@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **ayus13h@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1wEWtB_rwrmugrBYwraNeLcQBSHjq8m3G/view?usp=share_link](https://drive.google.com/file/d/1wEWtB_rwrmugrBYwraNeLcQBSHjq8m3G/view?usp=share_link)
+- 📄 Know about my experiences [Resume]( https://drive.google.com/file/d/1ULb2rgG6kLOiVhWiQmXV23-Z0erOjbsV/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
